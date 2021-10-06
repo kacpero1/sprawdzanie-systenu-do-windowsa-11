@@ -1,0 +1,1 @@
+# sprawdzanie-systenu-do-windowsa-11
